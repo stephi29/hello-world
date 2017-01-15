@@ -1,2 +1,2 @@
 # hello-world
-Totally new and exciting repository
+Hello, my name is Stephanie and I have been a real estate appraiser for the greater amount of my adult life.  It is a heavily regulated job that took a lot of patience and iniative to obtain, however, I'm ready to try something new.  I love the internet, I love the internet of things, I love some of the social media sites that are available now, and I would love to be a part of it in some way.
