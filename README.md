@@ -1,2 +1,2 @@
 # hello-world
-Totally new and exciting world repository
+Totally new and exciting repository
